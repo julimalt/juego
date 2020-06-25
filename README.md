@@ -1,2 +1,0 @@
-# Piedra papel o tijera
- 
